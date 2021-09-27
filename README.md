@@ -1,1 +1,1 @@
-{"open": 1, "url": "https:\/\/bet66.com"}
+{"open": 0, "url": "https:\/\/bet66.com"}
