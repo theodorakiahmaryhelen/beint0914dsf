@@ -1,1 +1,1 @@
-# beint0914dsf
+{"open": 1, "url": "https:\/\/bet66.com"}
